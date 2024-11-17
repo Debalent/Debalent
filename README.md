@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Debalent
+- 👋 Hi, I’m Demond Balentine but you can call me Dee for short
 - 👀 I’m interested in music
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate to help learn more
