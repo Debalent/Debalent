@@ -2,7 +2,7 @@
 - 👀 I’m interested in music
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate to help learn more
-- 📫 How to reach me 479-250-2573 or demondbalentine@gmail.com or demond.balentine@atlasschool.com
+- 📫 How to reach me 479-250-2573 or balentinetechsolutions@gmail.com
 - 😄 Pronouns: Him/He
 - ⚡ Fun fact: Grew up in Detroit
 
